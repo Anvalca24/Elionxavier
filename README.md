@@ -1,2 +1,3 @@
 # Elionxavier
-Pagina de traiding
+Página de negociación
+temamosbienvenida nuestro mundo
